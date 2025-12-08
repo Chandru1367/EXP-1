@@ -93,7 +93,6 @@ Calculation & Tabulation:
 
 ![WhatsApp Image 2025-10-07 at 17 05 48_e999b3e2](https://github.com/user-attachments/assets/9ed61eca-bade-4bfa-b99f-4e6f36cc0155)
 
-![WhatsApp Image 2025-10-07 at 17 06 23_3a0c917f](https://github.com/user-attachments/assets/794bd27a-0855-4365-8d6f-cfe49cc4acc8)
 
 
 
